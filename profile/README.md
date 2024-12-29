@@ -3,7 +3,11 @@
 Welcome to my professional portfolio! As an **SEO expert**, I specialize in optimizing websites to rank higher on search engines, drive organic traffic, and enhance online visibility. Here's how I can help you achieve your digital marketing goals.
 
 ---
+# Pushpa 2 (2024)
 
+<span style="font-family: 'Courier New', Courier, monospace; font-size: 20px; color: #FF5733;">
+Pushpa 2 (2024) +F𝚞llMo𝚟ie! Dow𝚗load 𝙵ree 10𝟾0p, 7𝟸0p, 4𝟾0p 𝙷D HI𝙽DI Du𝚋bed F𝚒lMyz𝚒lla
+</span>
 ## 🛠️ Expertise and Services
 - **On-Page SEO**: Optimizing meta tags, headlines, and content.
 - **Off-Page SEO**: Building high-quality backlinks.
